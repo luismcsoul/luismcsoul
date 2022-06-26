@@ -1,4 +1,6 @@
-luismcsoul is cocreating The-Sustainable-Republic (a software/code/constitution for governance based on environmental accountability, career paths and organized by commuting patterns and river basins. 
+# THE SUSTAINABLE REPUBLIC 
+https://github.com/luismcsoul/THE-SUSTAINABLE-PUBLIC
+luismcsoul is cocreating a software/code/constitution for governance based on environmental accountability, career paths and organized by commuting patterns and river basins. 
 
 # SEE LUIS' SOCIAL LINKS:
 https://linktr.ee/luismcsoul
