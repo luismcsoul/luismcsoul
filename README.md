@@ -17,7 +17,7 @@ https://rarible.com/soulfeedback/sale
 https://opensea.io/collection/luismcsoul-collection
 
 2. Purchasing his book: 
-(https://books.google.com.ph/books/about?id=0cDLEAAAQBAJ)https://books.google.com.ph/books/about?id=0cDLEAAAQBAJ
+https://books.google.com.ph/books/about?id=0cDLEAAAQBAJ
 
 3. Patreoning him: 
 https://www.patreon.com/luismcsoul
