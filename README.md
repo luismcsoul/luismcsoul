@@ -17,7 +17,7 @@ https://rarible.com/soulfeedback/sale
 https://opensea.io/collection/luismcsoul-collection
 
 2. Purchasing his book: 
-https://www.lulu.com/shop/luis-mejia-and-mauricio-sanchez/kubo/ebook/product-gkm6d4.html?page=1&pageSize=4
+(https://books.google.com.ph/books/about?id=0cDLEAAAQBAJ)https://books.google.com.ph/books/about?id=0cDLEAAAQBAJ
 
 3. Patreoning him: 
 https://www.patreon.com/luismcsoul
