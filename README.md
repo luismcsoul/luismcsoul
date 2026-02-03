@@ -1,6 +1,6 @@
 # THE SUSTAINABLE REPUBLIC 
 https://github.com/luismcsoul/THE-SUSTAINABLE-REPUBLIC
-Cocreating a software/code/constitution for governance based on environmental accountability, career paths and organized by commuting patterns and river basins. 
+Cocreating a software/code/constitution for governance based on environmental accountability, career paths and organized by commuting patterns, river basins and supply chain tracking. 
 
 # SEE LUIS' SOCIAL LINKS:
 https://linktr.ee/luismcsoul
